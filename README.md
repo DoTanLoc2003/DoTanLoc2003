@@ -6,7 +6,7 @@
 
 *--The more we learn, the bigger the world we see--*
 
-Greetings, I'm Lộc, call me Mun, a black cat. I learnt many, but know not much. Still finding my footing, but excited to collaborate, grow, and contribute wherever I can. Thanks for stopping by.
+Greetings, I'm Lộc, call me Mun, a black cat. Still finding my footing, but excited to collaborate, grow, and contribute wherever I can. Thanks for stopping by.
 
 ### About me
 - Intern Developer
