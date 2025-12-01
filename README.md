@@ -31,10 +31,10 @@ Greetings, I'm Lộc, call me Mun, a black cat. Still finding my footing, but ex
     
   - Persional: loc07112003@gmail.com
   
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/cd26bd75-e443-49c2-a326-d6a9726d927f" /> Zalo - <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/45849984-1c2c-4d63-911d-21a58d3ebe9d" /> Phone - 035 598 6309
-  
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7fcf8f8d-a2d1-4461-88ea-8c2a74c971e1" /> Steam - [noname4now](https://steamcommunity.com/id/noname4now/)
 
 Lastly, I’m truly grateful to have you, [Swyrin](https://github.com/swyrin) to be my friend.
+
+And my 💞 [Jennie](https://github.com/JennieNguyn)
 
 Nyan!
