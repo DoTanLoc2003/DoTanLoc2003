@@ -34,7 +34,3 @@ Greetings, I'm Lộc, call me Mun, a black cat. Still finding my footing, but ex
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7fcf8f8d-a2d1-4461-88ea-8c2a74c971e1" /> Steam - [noname4now](https://steamcommunity.com/id/noname4now/)
 
 Lastly, I’m truly grateful to have you, [Swyrin](https://github.com/swyrin) to be my friend.
-
-And my 💞 [Jennie](https://github.com/JennieNguyn)
-
-Nyan!
